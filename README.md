@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @anamarilustra designer and illustrator.
+- 👀 I’m interested in UI/UX Design
+- 🌱 I’m currently learning programming and UI/UX Design ✨💖
+- 📫 How to reach me "anamarilustra@gmail.com"

@@ -7,6 +7,6 @@
 
 - I’m Designer, Illustrator and Future Programmer. 🚀
    
-- Passionate about Design and Technologies, currently learning Programming and UI/UX Design ✨💖
+- Passionate about Design and Technologies, currently learning Programming and UI/UX Design ✨
 
 - 📫 How to reach me "anamarilustra@gmail.com"
